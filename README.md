@@ -1,3 +1,2 @@
 - 👋 Hej, jestem @CorekMeister
-- 👀 Interesuję sie programowaniem
 - 📫 Skontakujesz się ze mną na discordzie CorekL#3494
